@@ -8,7 +8,7 @@ Movavi to see how I did my edits and take inspiration, all sounds/music/non-orig
 @SammyMJay (Twitch Streamer, TikTok, Youtube)
 
 
-På norsk:
+På norsk: <br>
 De fleste av disse videoene og kortfilmene er laget for Twitch.tv streamer @sammymjay <br>
 Vennligst ikke publiser filene på nytt, ettersom de er i bruk av eieren av innholdet <br>
 Se gjerne filene og se hvordan jeg redigerer. Alt ikke-originalt innhold brukes innenfor relevante plattformretningslinjer <br>
